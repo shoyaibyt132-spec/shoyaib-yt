@@ -1,2 +1,0 @@
-# shoyaib-yt
-lave letter
